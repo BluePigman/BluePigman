@@ -1,3 +1,16 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=BluePigman&color=d49ede)
+Hi there. I'm currently not working on anything at the moment. I like playing chess and Minecraft. I also like discovering new music, please give me recommendations. 
 
-So you're telling me there's a chance.
+
+
+
+
+
+
+
+
+
+
+
+
+
+![](https://hit.yhype.me/github/profile?user_id=82780692)
